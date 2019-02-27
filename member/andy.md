@@ -14,4 +14,4 @@
 > https://www.linkedin.com/in/hyunsoo-cho-611795111/
 
 ## 영문 이력서 주소
-https://docs.google.com/document/d/1UeSB_RZVV5fDul6PtKmeUIUWCzwqo7UYbUgXzj4H4ag/edit?usp=sharing
+https://docs.google.com/document/d/1LRFG83Di2oU9bXQNqA1NPwBeMzrqwndCo_drWKfW-hM/edit?usp=sharing
