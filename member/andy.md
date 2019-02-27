@@ -12,3 +12,6 @@
 
 ## 링크드인 주소(최신 상태로 업데이트 후)
 > https://www.linkedin.com/in/hyunsoo-cho-611795111/
+
+## 영문 이력서 주소
+https://docs.google.com/document/d/1UeSB_RZVV5fDul6PtKmeUIUWCzwqo7UYbUgXzj4H4ag/edit?usp=sharing
