@@ -12,3 +12,6 @@
 
 ## 링크드인 주소(최신 상태로 업데이트 후)
 > https://www.linkedin.com/in/won-sik-kim-749964a2/
+
+## 영문 이력서 주소
+> https://drive.google.com/file/d/1ZiV8NIxddBdiStQsFJuc62edXJ-H31ua/view?usp=sharing
