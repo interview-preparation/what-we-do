@@ -12,3 +12,6 @@
 
 ## 링크드인 주소(최신 상태로 업데이트 후)
 > https://www.linkedin.com/in/juhwanyun
+
+## 영문 이력서 주소
+> https://docs.google.com/document/d/1Z1ULWIr844CDJCb0GEsAXaw2r0cysdlV95DaM2cXJiY
